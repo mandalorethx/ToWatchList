@@ -1,11 +1,11 @@
 # ToWatchList
 List of things to watch:
 
-In Progress:
+**In Progress:**
 
 Dirk Gently (Hulu)
 
-To Watch:
+**To Watch:**
 
 Samurai Jack (Hulu)
 
@@ -19,11 +19,11 @@ The Terror (Hulu)
 
 Tales from the Loop (Amazon)
 
-To Watch Maybe:
+**To Watch Maybe:**
 
 American Gods Season 3 (Not streaming anywhere, probably want better quality than screen sharing)
 
-Upcoming Shows:
+**Upcoming Shows:**
 
 Doctor Who (Season 13, Sometime in 2021)
 
