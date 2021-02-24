@@ -19,6 +19,8 @@ The Terror (Hulu)
 
 Tales from the Loop (Amazon)
 
+Babylon 5 HD (HBO)
+
 **To Watch Maybe:**
 
 American Gods Season 3 (Not streaming anywhere, probably want better quality than screen sharing)
