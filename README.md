@@ -3,7 +3,7 @@ List of things to watch:
 
 **In Progress:**
 
-Samurai Jack (GBO)
+Samurai Jack (HBO)
 
 **To Watch:**
 
